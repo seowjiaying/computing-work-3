@@ -16,9 +16,9 @@ Answer me!!!!!!!!!!!!!!!!!!!
 
 Please, your *sleeping* is so fake!
 
-Put your head up NOW!
+Put your heads up NOW!
 
-You.............. you now what?
+You.............. you know what?
 
 To be honest, I don't feel like waking you anymore.
 
