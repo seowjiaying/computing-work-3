@@ -7,7 +7,7 @@ Yan Ning
 
   >Drink: Soy Bean
 
-  >Book: Warriors (^..^)/     or     CYOA
+  >Book: Warriors (^..^)~     or     CYOA
 
   >Sport: Frisbee
 
